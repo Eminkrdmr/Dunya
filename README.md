@@ -1,0 +1,2 @@
+# Dunya
+Dünya yaşamaya değer 
